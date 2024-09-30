@@ -4,10 +4,10 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
 -    👇👇👇👇👇👇
--    inst_id:-https://www.threads.net/@subh._.3000
--    thered:-https://www.instagram.com/subh._.3000?igsh=MXRmOWZ0d2pmdTQyMQ==
--    X id:-https://x.com/Subham__Sahoo?t=s6kflkVOAQ8ySK6_5sSViA&s=09
--    linkdin:-https://www.linkedin.com/in/subham-sahoo-306970322?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+-    inst_id🖇️https://www.threads.net/@subh._.3000
+-    thered🖇️ https://www.instagram.com/subh._.3000?igsh=MXRmOWZ0d2pmdTQyMQ==
+-    X id🖇️ https://x.com/Subham__Sahoo?t=s6kflkVOAQ8ySK6_5sSViA&s=09
+-    linkdin🖇️https://www.linkedin.com/in/subham-sahoo-306970322?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
   
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
