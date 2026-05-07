@@ -1,5 +1,6 @@
 # 💫 About Me:
-Hey i am subham 👋
+Hi, I'm Subham, a student at Rungta College of Engineering and Technology and a passionate Full Stack Developer. I am currently focused on improving my skills in Data Structures & Algorithms (DSA) while also exploring the field of AI/ML. I enjoy building real-world projects, learning new technologies, and continuously improving my problem-solving abilities. My goal is to become a skilled software developer and work on impactful projects that create value. I am currently open to internships, job opportunities, and collaborations where I can learn, contribute, and grow as a developer. 🚀
+
 
 
 ## 🌐 Socials:
